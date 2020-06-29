@@ -9,3 +9,5 @@ Feared servant of the Emperor.Had a red lightsaber and a full mask. Trained as a
 * was Jedi
 * non-smoker
 
+> Luke, I am your father
+
